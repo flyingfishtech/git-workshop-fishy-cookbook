@@ -13,4 +13,9 @@ Zo opgelost:
 5. Meer soja saus (nog 2 flessen leeggooien)
 
 Biembamboem hartstikke lekker
+<<<<<<< HEAD
 man man chi
+=======
+
+Slurpie time
+>>>>>>> hungry
