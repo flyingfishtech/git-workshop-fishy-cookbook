@@ -18,9 +18,13 @@ Ingredients:
 Instructions:
 Heat oil in a dutch oven over medium heat (or the biggest pot you own—seriously, this is a big dill).
 
+
 Toss in the garlic, rosemary, and a generous pinch of salt. Sauté until the garlic is golden and fragrant (about 5 minutes). By now, your kitchen should smell un-fir-gettable!
 
 Stir in red pepper flakes and let them spice up your life for about 30 seconds.
+
+BONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONENBONEN
+
 
 Add the tomato paste and cook for a minute until it turns a deeper red—like it’s blushing from all the compliments.
 
@@ -42,4 +46,12 @@ Notes:
 🚫 Avoid canned chickpea liquid unless you’re a fan of extra starchiness (and who’s got time for that?!).
 ⏳ Best served fresh—leftovers can be stored for 2 days, but they’ll need a little extra liquid when reheating (because pasta is thirsty).
 
+
 Enjoy your pasta-tively amazing meal! 🍝✨
+
+   Use reserved chickpea cooking liquid if using dried chickpeas.
+   Avoid canned chickpea liquid for better texture.
+   Best served fresh; refrigerate leftovers for up to 2 days, reheating with added liquid.
+
+meer bonen
+
