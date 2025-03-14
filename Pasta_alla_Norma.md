@@ -13,6 +13,8 @@
 **Instructions**
 1. Snipper de ui en knoflook en fruit deze aan in olijfolie in een grote pan
 2. Voeg de tomaten toe en vervolgens wat peper, zout, itakru, chili en verse basilicum. Laat het geheel voor ca. 25 minuten pruttelen.
+2.b meer uit toevoegen 
+2.c biertje pakkens
 3. Snij de aubergines in stukken en bak deze aan in ruim olijfolie.
 4. Kook ondertussen de pasta en voeg kookwater toe aan de saus als deze te dik is.
 5. Serveer met extra basilicum en pecorino
