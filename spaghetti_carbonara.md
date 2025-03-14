@@ -3,7 +3,9 @@
 **Ingredients:**
 - 200g spaghetti
 - 2 eggs
-- 100g pancetta
+- 100g tofu 
+- meer kaas
+- 2 bak
 - 50g Parmesan cheese
 - Salt & pepper
 
