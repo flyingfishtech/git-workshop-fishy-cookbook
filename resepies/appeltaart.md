@@ -1,2 +1,2 @@
 Voeg vlees toe
-[eggs](git-workshop-cooking-basics\boil_egg.md)
+[eggs](..\git-workshop-cooking-basics\boil_egg.md)
