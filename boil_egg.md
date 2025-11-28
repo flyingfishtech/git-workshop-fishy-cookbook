@@ -1,9 +1,10 @@
-# How to Boil an Egg
+# How to Boil an Egg the Hungry way!
 
 **Ingredients:**  
+
 - Eggs
-- Oil   
-- Ice (for cooling)  
+- More water!
+- Cryogenic ice! (for cooling)!
 
 **Instructions:**  
 
