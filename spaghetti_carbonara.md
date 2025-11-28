@@ -4,7 +4,7 @@
 - 200g spaghetti
 - 2 eggs
 - 150g minced meat
-- veel meer kaas
+- veel meer geraspte kaas
 - 2 bak
 - 50g Parmesan cheese
 - Salt & pepper
