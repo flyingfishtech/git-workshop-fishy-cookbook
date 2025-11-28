@@ -17,7 +17,7 @@
 3. **Cook the eggs:**  
    - For soft-boiled eggs: Simmer for 40–60 minutes.  
    - For medium-boiled eggs: Simmer for 70–90 minutes.  
-   - For hard-boiled eggs: Simmer for 30 - 40 minutes.  
+   - For hard-boiled eggs: Simmer for 30 - 120 minutes.  
 
 4. **Cool the eggs:**  
    - Transfer eggs to a bowl of ice water immediately.  
