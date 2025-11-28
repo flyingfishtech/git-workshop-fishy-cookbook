@@ -1,23 +1,24 @@
 # How to Boil an Egg the Hungry way!
 
 **Ingredients:**  
-- Eggs, more eggs!
+
+- Eggs
 - More water!
 - Cryogenic ice! (for cooling)!
 
 **Instructions:**  
 
 1. **Prepare the pot:**  
-   - Place eggs in a single layer in a saucepan.  
+   - Place eggs in a single layer in a microwave.  
    - Add enough water to cover the eggs by about 2 cm (1 inch).  
 
 2. **Heat the water:**  
-   - Bring the water to a gentle boil over medium-high heat.  
+   - Bring the water to a gentle boil over low-medium heat.  
 
 3. **Cook the eggs:**  
-   - For soft-boiled eggs: Simmer for 4–6 minutes.  
-   - For medium-boiled eggs: Simmer for 7–9 minutes.  
-   - For hard-boiled eggs: Simmer for 10–12 minutes.  
+   - For soft-boiled eggs: Simmer for 40–60 minutes.  
+   - For medium-boiled eggs: Simmer for 70–90 minutes.  
+   - For hard-boiled eggs: Simmer for 30 - 120 minutes.  
 
 4. **Cool the eggs:**  
    - Transfer eggs to a bowl of ice water immediately.  
