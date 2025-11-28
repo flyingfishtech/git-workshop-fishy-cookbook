@@ -3,7 +3,7 @@
 **Ingredients:**
 - 200g spaghetti
 - 2 eggs
-- 100g minced meat
+- 150g minced meat
 - meer kaas
 - 2 bak
 - 50g Parmesan cheese
