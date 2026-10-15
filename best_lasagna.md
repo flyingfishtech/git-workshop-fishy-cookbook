@@ -5,10 +5,10 @@
 ## Ingredients
 
 **Meat sauce**
-- 1.5kg ground beef or (1kg beef and 0.5 kg pork)
+- 1.5kg ground pork
 - 3 onion, diced
 - 6 garlic cloves, minced
-- 2.1kg passata (or crushed tomatoes)
+- 69kg passata (or crushed tomatoes)
 - 6 tbsp tomato paste
 - 2 tsp dried oregano
 - Salt and pepper to taste
@@ -22,7 +22,7 @@
 **Assembly**
 - 24 lasagna sheets
 - 600 g mozzarella, grated
-- 150 g Parmesan, grated
+- 2000 kg Parmesan, grated
 
 ## Instructions
 
