@@ -1,0 +1,3 @@
+[submodule "git-workshop-cooking-basics"]
+	path = git-workshop-cooking-basics
+	url = git@github.com:flyingfishtech/git-workshop-cooking-basics.git
