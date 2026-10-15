@@ -3,8 +3,8 @@
 **Ingredients:**
 - 200g spaghetti
 - 2 eggs
-- 100g tofu 
-- meer kaas
+- 150g minced meat
+- veel meer geraspte kaas
 - 2 bak
 - 50g Parmesan cheese
 - Salt & pepper
