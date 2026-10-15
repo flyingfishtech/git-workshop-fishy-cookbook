@@ -3,7 +3,7 @@
 **Ingredients:**
 - 200g spaghetti
 - 2 eggs
-- 150g minced meat
+- ~~150g minced meat~~
 - veel meer geraspte kaas
 - 2 bak
 - 50g Parmesan cheese
@@ -11,7 +11,7 @@
 
 **Instructions:**
 1. Boil the spaghetti in salted water.
-2. Fry the pancetta until crispy.
+2. ~~Fry the pancetta until crispy.~~
 3. Beat the eggs and mix with cheese.
 4. Drain the pasta and mix everything together.
 5. Enjoy!
