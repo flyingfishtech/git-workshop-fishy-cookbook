@@ -22,7 +22,7 @@
 **Assembly**
 - 24 lasagna sheets
 - 600 g mozzarella, grated
-- 2000 kg Parmesan, grated
+- 2 kg Parmesan, grated
 
 ## Instructions
 
