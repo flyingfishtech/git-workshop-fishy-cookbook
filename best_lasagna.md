@@ -1,17 +1,17 @@
 # Classic Lasagna for 16 people
 
-**Serves:** 6 | **Prep:** 25 min | **Bake:** 45 min
+**Serves:** 18 | **Prep:** 25 min | **Bake:** 45 min
 
 ## Ingredients
 
 **Meat sauce**
-- 1.5kg ground beef
+- 1.5kg ground pork
 - 3 onion, diced
 - 6 garlic cloves, minced
-- 2.1kg passata (or crushed tomatoes)
+- 69kg passata (or crushed tomatoes)
 - 6 tbsp tomato paste
 - 2 tsp dried oregano
-- Salt and pepper
+- Salt and pepper to taste
 
 **Béchamel**
 - 150 g butter
@@ -22,7 +22,7 @@
 **Assembly**
 - 24 lasagna sheets
 - 600 g mozzarella, grated
-- 150 g Parmesan, grated
+- 2 kg Parmesan, grated
 
 ## Instructions
 
