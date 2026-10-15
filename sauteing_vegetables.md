@@ -1,8 +1,8 @@
 # How to Sauté Vegetables  
 
 **Ingredients:**  
-- 1 tbsp oil (olive, vegetable, or butter)
-- 1 cup vegetables (e.g., bell peppers, onions, zucchini)  
+- 5 tbsp oil (olive, vegetable, or butter)
+- 5 cup vegetables (e.g., bell peppers, onions, zucchini)  
 - Salt and pepper (to taste)  
 
 **Instructions:**  
